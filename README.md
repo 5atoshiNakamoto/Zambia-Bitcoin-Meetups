@@ -1,4 +1,12 @@
+Zambia
+
 # ZambiaBitcoinMeetups.com
 
-Zambia Bitcoin Meetups
+## Zambia Bitcoin Meetups
 Monthly at Scallywags in Lusaka
+
+## Twitter Spaces
+
+## Resources
+
+## Links
